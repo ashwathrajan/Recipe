@@ -2,6 +2,8 @@
 
 This is a recipe for a cream and chocolate filled donut:
 
+Ingredients:
+10 chocolate cookies, 0.5 cup cream cheese (115 g), 12 pieces chocolate for the cookies and cream filling. 2 cups plain flour (250 g), 0.25 cup castor sugar (50 g), 1.5 teaspoons baking powder, 0.5 teaspoon salt, 0.5 cup milk (120 ML), 3 tablespoons melted butter, 2 tablespoons sunflower oil, 4 cups sunflower oil (1 L) for frying, 1/3 cup white chocolate for the donut mixture.
 
 1.Pour the cookies into a ziplock bag, fasten, and bash into crumbs using a rolling pin.
 2.Pour half of the cookie crumbs into a bowl and mix with the cream cheese. Set aside.
